@@ -1,4 +1,4 @@
-
+Enhance Adobe Audition for macOS with Adobe Audition for macOS instant Plugin: EQ & real-time-effects, the #1 plugin. Includes EQ and real-time-effects for a smoother and more
 
 
 
